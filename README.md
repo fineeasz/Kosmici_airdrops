@@ -4,6 +4,6 @@
 **Pasted by Fineeasz From Kosmici.space**
 <br>
 Script pasted from:
-<a href="https://discord.gg/kosmicispace"> Kosmici.space</a>
+<a href="https://discord.gg/kosmicispace"> Kosmici.space</a> & <a href="https://github.com/xariesnull"> xariesnull</a>
 <br>
 Support Discord: <a href="https://discord.gg/topleaks"> TopLeaks</a>
